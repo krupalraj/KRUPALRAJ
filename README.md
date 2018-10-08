@@ -1,2 +1,2 @@
-# sandeepguptan
-Its my resume
+# KRUPAL RAJ CHIRUGUDU
+     resume
